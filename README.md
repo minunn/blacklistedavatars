@@ -1,1 +1,1 @@
-List of vrchat/vrc crash avatars feel free to use or report them ❤
+List of vrchat crash avatars feel free to use or report them ❤
